@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket vip bot: decentralized-trading & take-profit-orders, the #1 bot. Includes decentralized-trading and take-profit-orders for a
 
 
 
